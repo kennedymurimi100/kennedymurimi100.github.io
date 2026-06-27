@@ -1,1 +1,1 @@
-# kennedy-blue100.github.io
+# kennedymurimi100.github.io
